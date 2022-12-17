@@ -13,13 +13,13 @@ The' 'Statement is Self-Defined to obtain own stability' via antiquity' of 'Rese
 
 Cause - 
 
-'Cause, 'Self Identified obtain Granted will of right', Promoting through Imperial Axy Research organization via 'Peace and or Serenity' to obtain a grant itself for Non-Profit orginization purposes of Just':'Cause. 
+'Cause, 'Self Identified obtain Granted will' of right.  Promoting through Axy Research organization via Peace and or Serenity to obtain antiquity self, Non-Profit orginization purpose of Just:Cause. 
 
 Funding - 
 
-Obtain funding via self define of Antiquity of Research or Cause of 'Self organization margin.
-Funding via idealist of Researh Conglomerate'.
+Obtain funding via self define of Antiquity of Research or Cause of Self organization margin.
+Funding via idealist of Researh Conglomerate discloseure will of rights. 
 
 Collaboration via Conglomeration - 
 
-Conglomeration of Collaberation ideal to own cause' Research purpose'.  
+Conglomeration of Collaberation relative to own cause Research purpose'.  
